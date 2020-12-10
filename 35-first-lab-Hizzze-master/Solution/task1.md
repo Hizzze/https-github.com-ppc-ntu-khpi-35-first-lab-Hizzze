@@ -2,7 +2,7 @@
 *task 1.1*
 
 
-![1.1](https://imaC:\Users\VladislavPC\Desktop\1.1 task.png)
+![1.1](https://imaC:\Users\VladislavPC\Desktop\1.1task.png)
 
 *task 1.2*
 
